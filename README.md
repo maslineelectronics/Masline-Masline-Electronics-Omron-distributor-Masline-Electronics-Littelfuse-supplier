@@ -78,4 +78,4 @@ Masline Electronics stands as a trusted **Omron distributor** and **Littelfuse s
 
 By choosing Masline, you secure a dependable partner for your electronic component needs. From **Omron relays and sensors** to **Littelfuse circuit protection devices**, Masline delivers the products and services that keep innovation and production moving forward.  
 
-With Masline Electronics, your supply chain gains reliability, speed, and trust — making us the preferred choice for engineers, OEMs, and procurement teams worldwide.
+With Masline Electronics, your supply chain gains reliability, speed, and trust making us the preferred choice for engineers, OEMs, and procurement teams worldwide.
